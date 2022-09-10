@@ -1,0 +1,1 @@
+# Fandango-s_movies_rate
